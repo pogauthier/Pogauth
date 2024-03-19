@@ -1,4 +1,4 @@
-Hi, I’m Pierre-Olivier Gauthier B.Sc Honor in Neurosciences
+Hi, I’m Pierre-Olivier Gauthier
 
 I am interested in the translation of neuroscience research into clinicals applications.
 
